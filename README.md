@@ -1,1 +1,1 @@
-# petrusparanggai1.github.io
+# petrusparanggai.github.io
